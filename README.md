@@ -1,1 +1,0 @@
-# BUCKSJJUN.github.io
